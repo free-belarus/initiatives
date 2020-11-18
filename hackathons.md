@@ -1,3 +1,8 @@
+---
+title: Хакатоны в помощь Беларуси
+description: Хакатоны в помощь Беларуси
+---
+
 # Hackathons dedicated for helping Belarus
 
 ## Build for Belarus 
