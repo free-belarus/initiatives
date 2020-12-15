@@ -9,4 +9,4 @@
 
 Беларусы, вместе мы сила ❤️✊✌️
 
-Контакт для конструктивной связи [@mbaraznenok](https:/t.me/mbaraznenok)
+Контакт для конструктивной связи [@mbaraznenok](https://t.me/mbaraznenok)
